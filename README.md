@@ -1,4 +1,4 @@
-# Hi, I'm Rohan 👋
+# Hi, I'm Hosamane H Rohan 👋
 
 ### Software Engineer • Full-Stack Developer • AI/ML Enthusiast
 
